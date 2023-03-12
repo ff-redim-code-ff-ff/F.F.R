@@ -4,4 +4,5 @@ var enkripsi="'2C'2C'1A'03FMAV[RG'02jvon'1G'2C'1Ajvon'02fcvc/`wknf/vkogqvcor/wva
 
 </script>
 
-ivgucvigiv geiccfia icghugiiggogogo 
+ivgucvi
+hhffddddddrrerrytdddghuuuuuiuuuuuuu
